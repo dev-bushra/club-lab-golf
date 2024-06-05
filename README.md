@@ -12,7 +12,7 @@ Membership Benefits: Enjoy exclusive perks and connect with a community of golf 
 <br/>
 
 # Live Link
-https://golfkraft.ae/
+https://clublabgolf.com/
 
 <br/>
 
